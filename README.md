@@ -12,7 +12,7 @@
 
 ✍️ I want to be at a good cloud level wherein I can easily deploy, code and run cloud services the end of the challenge. 
 
-- [✍️ LinkedIn](https://www.linkedin.com/in/VaishnaviRaut123/)
+- [✍️ LinkedIn](https://www.linkedin.com/in/vaishnavi-raut-4a0228224/)
 - [✍️ Instagram](https://www.instagram.com/vaishnaviraut287/)
 
 
